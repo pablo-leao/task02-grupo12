@@ -34,7 +34,7 @@
 - Banda: R.E.M.
 - Assistir: https://www.youtube.com/watch?v=xwtdhWltSIg
 
-### Emerson Ribeiro:
+### Pablo Leão:
 
 ![](https://i.ytimg.com/vi/E0ozmU9cJDg/hq720.jpg?sqp=-oaymwEcCOgCEMoBSFXyq4qpAw4IARUAAIhCGAFwAcABBg==&rs=AOn4CLA1h5moIv8OSGNR1obZiAMqcUesmg)
 
